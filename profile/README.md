@@ -90,3 +90,23 @@ Codes are often single-use but check regularly for new updates.
 Absolutely! We only share secure and legitimate resources for Free Fire.  
 
 For more tips, tricks, and updates, visit us regularly at **Dustruco**.  
+
+https://github.com/youtube-shorts
+
+https://github.com/youtube-shorts/yt-premium
+
+https://github.com/youtube-shorts/youtube-premium
+
+https://github.com/spotify-pr
+
+https://github.com/spotify-pr/spotify-app
+
+https://github.com/spotify-pr/spotify-music
+
+https://github.com/gitiay-v
+
+https://github.com/gitiay-v/jerkflix-tv
+
+https://github.com/gitiay-v/stream-india
+
+
